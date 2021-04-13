@@ -1,1 +1,2 @@
 # Chocolate-cake
+This is a chocolate delicacy. The Sponge is made with Vanilla flavour and the the frosting is a chocolate burst. It is neither too bitter nor too sweet and a perfect taste for all age groups. It melts in your mouth dipping you into the world of chocolates. Nuts can be added as an option to have the crunch while you enjoy yourself in the world of chocolate.
